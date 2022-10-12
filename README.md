@@ -1,7 +1,7 @@
 # How to Cancel Amazon Prime Membership?
 
 
-[![how to cancel amazon prime membership](redd.png)](https://github.com/websitetech/how.to.cancel.amazon.prime.membership)
+[![how to cancel amazon prime membership](redd.png)](https://icncomputer.com/how-to-cancel-amazon-prime-membership/)
 
 
 
